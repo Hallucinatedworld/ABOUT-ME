@@ -1,2 +1,12 @@
-# ABOUT-ME
-Sol/Hansel, or simply just call me Thomas!!  ------ Any pronouns, I'm a chill person so don't be afraid to come up to me ^u^  There was a dni lists too, it's pretty common so you might know what there'll be!, i draw ^v^
+## *SILLY INFORMATION!!*
+ <img width="504" height="374" alt="1000034006" src="https://github.com/user-attachments/assets/c30186c9-d806-4da9-88d8-8cae1ea7fca1" />
+ 
+¤¸¸.•´¯`•¸¸.•..>> ˢᵒˡ/ᴴᵃⁿˢᵉˡ, ᵒʳ ˢⁱᵐᵖˡʸ ʲᵘˢᵗ ᶜᵃˡˡ ᵐᵉ ᵀʰᵒᵐᵃˢ!! ⁽ᴼʳ ᵐᵃʸᵇᵉ ˢᵒʳᵉⁿ⁾ ⁻⁻⁻⁻⁻⁻ ᴬⁿʸ ᵖʳᵒⁿᵒᵘⁿˢ, ᴵ'ᵐ ᵃ ᶜʰⁱˡˡ ᵖᵉʳˢᵒⁿ ᵃⁿᵈ ⁱˢ ᵃᶜᵗⁱᵛᵉˡʸ ᵒⁿ ᴾᵀ ²⁴/⁷ ˢᵒ, ᵈᵒⁿ'ᵗ ᵇᵉ ˢᶜᵃʳᵉᵈ ᵗᵒ ⁱⁿᵗ. ᴾʳᵒᵇˡᵉᵐᵃᵗⁱᶜ ˢᵗᵘᶠᶠˢ ˢᵗʳⁱᶜᵗˡʸ ᴰᴺᴵ.
+
+¤¸¸.•´¯`•¸¸.•..>> ᵃʷʷ ʰᵉˡˡ ʸᵉᵃʰ ⁱ ᵏⁿᵒʷ ᵃˡᵒᵗ ᵒᶠ ᶠᵃⁿᵈᵒᵐˢ. ᵇᵘᵗ ᴵ'ᵐ ᵐᵒˢᵗ ˡⁱᵏᵉˡʸ ⁱⁿᵗᵒ ^_^ ᵃⁿᵈ ⁼³ ⁻ˢʷᵃᵖ ᵃᵘ⁻
+
+¤¸¸.•´¯`•¸¸.•..>> ᴵ ᵈᵒ ᵐᵃᵏᵉ ᵃʳᵗˢ ᵃⁿᵈ ᵈᵒᵒᵈˡᵉˢ ʷʰᵉⁿ ᴵ'ᵐ ᵇᵒʳᵉᵈ, ᵃⁿᵈ ʸᵉˢ ⁱ ᵈᵒ ᵃᶜᶜᵉᵖᵗ ʳᵉqˢ ᶠᵒʳ ᶠʳᵉᵉ. ᵀʰᵒᵘᵍʰ, ᶜˡᵒˢᵉ ᶠʳⁱᵉⁿᵈˢ ᵒⁿˡʸ.
+
+ᴵ'ᵐ ᵃⁿ ᵃʳᵒᵐᵃⁿᵗⁱᶜ ^_^
+
+<img width="504" height="374" alt="1000034005" src="https://github.com/user-attachments/assets/6c92c89e-89c1-4d31-a4d4-f218ebe00e11" />
